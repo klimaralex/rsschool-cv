@@ -6,6 +6,6 @@
 ## 4. 
 ## 5.
 ## 6.
-## 7.Education: Gomel State Medical University, vascular surgeon.
+## 7.Education: Gomel State Medical University, vascular surgeon
 ## 8. Languages: Russian, English (B2 - Upper-Intermediate)
 
