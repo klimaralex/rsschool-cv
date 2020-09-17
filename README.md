@@ -1,1 +1,1 @@
-# rsschool-cv
+https://klimaralex.github.io/rsschool-cv/
